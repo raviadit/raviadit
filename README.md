@@ -7,8 +7,8 @@
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 Goals    : Being Advance Developer
 - ⚡ Fun fact : I love to listen to rap music and play video game
-- 🎮 Check out my Steam Profile Page : [CodeCats](https://steamcommunity.com/id/raviforgeard)
-- 🎵 Check out my Spotify Playlist   : [CodeCats](https://open.spotify.com/playlist/7d1YSSa0qbama9QEXCwj6U?si=BY-C67aRTu67_3el9tRhYA&utm_source=whatsapp&nd=1)
+- 🎮 Check out my Steam Profile Page : [Click](https://steamcommunity.com/id/raviforgeard)
+- 🎵 Check out my Spotify Playlist   : [Click](https://open.spotify.com/playlist/7d1YSSa0qbama9QEXCwj6U?si=BY-C67aRTu67_3el9tRhYA&utm_source=whatsapp&nd=1)
 
 
 ### Languages and Tools:
